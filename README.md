@@ -1,1 +1,0 @@
-# simons-nyc-restaurant
